@@ -1,4 +1,4 @@
-Brawl Stars v25!!
-Trophies in Friendly Battle
-Boxs
+# Brawl Stars v25!!
+# Trophies in Friendly Battle.
+# Boxs
 
